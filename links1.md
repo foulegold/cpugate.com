@@ -1,4 +1,4 @@
-![image](https://github.com/foulegold/cpugate.com/assets/32966650/60514772-64e0-429d-b5d9-b82fe395b758)https://phanthanhviet.com/question/cpu-compare
+https://phanthanhviet.com/question/cpu-compare
 https://iamwomanacademy.com/gpu-specifications/
 https://shikhadabas.com/2024/03/11/compare-processors/
 http://170.106.140.180/index.php?qa=8222&qa_1=gpu-specifications
